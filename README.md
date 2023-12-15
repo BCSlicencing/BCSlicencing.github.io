@@ -1,1 +1,0 @@
-# BCSlicencing.github.io
